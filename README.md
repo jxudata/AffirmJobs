@@ -16,10 +16,7 @@ If you are looking for **experienced positions**,  you have two options:
 
 To know more about Affirm, please read the following: 
 
-[1] Affirm Careers. [https://www.affirm.com/careers](https://www.affirm.com/careers)
-
-[2] Affirm Tech Blog. [https://tech.affirm.com/](https://tech.affirm.com/)
-
-[3] Affirm in the news. [https://www.affirm.com/press](https://www.affirm.com/press)
-
-[4] What is it like to work at Affirm. [https://www.quora.com/Whats-it-like-to-work-at-Affirm](https://www.quora.com/Whats-it-like-to-work-at-Affirm)
+- [1] Affirm Careers. [https://www.affirm.com/careers](https://www.affirm.com/careers)
+- [2] Affirm Tech Blog. [https://tech.affirm.com/](https://tech.affirm.com/)
+- [3] Affirm in the news. [https://www.affirm.com/press](https://www.affirm.com/press)
+- [4] What is it like to work at Affirm. [https://www.quora.com/Whats-it-like-to-work-at-Affirm](https://www.quora.com/Whats-it-like-to-work-at-Affirm)
