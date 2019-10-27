@@ -15,12 +15,6 @@ If you are looking for **Data Science (New Graduate)** position (we do not have 
 
 If you are looking for **experienced positions**,  you have two options: 
 
- 1. Social Referral
- 
- Simply apply using this [link](https://jobs.lever.co/affirm?lever-via=y0mY3vA2RD). 
- 
- 2. Manual Referral
- 
  If you are **really** interested in Affirm and you find a position that **really** matches your experience, let us talk! Please click this [link](https://jobs.lever.co/affirm?lever-via=y0mY3vA2RD), find up to three positions, send them to affirm.refer.job@gmail.com, with your linkedin profile link, resume, and 3rd person introduction of yourself. I will follow up with you. I would be more than willing to answer your questions about Affirm. 
 
 To know more about Affirm, please read the following: 
