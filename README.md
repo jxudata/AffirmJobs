@@ -18,7 +18,7 @@ Check out Quora question [What is it like to work at Affirm](https://www.quora.c
 
 **What experienced positions are available?**
 
-- If you are **really** interested in Affirm and you find a position that **really** matches your experience, let us talk! Please click this [referral link](https://grnh.se/8ec8f9fd3us), send to affirm.refer.job@gmail.com, with your linkedin profile link, and resume. I will follow up with you. 
+- If you are **really** interested in Affirm and you find a position that **really** matches your experience, let us talk! Please click this [referral link](https://grnh.se/54db7ac73us), send to affirm.refer.job@gmail.com, with your linkedin profile link, and resume. I will follow up with you. 
 - If you just want to apply through the link, visit this [referral link](https://grnh.se/54db7ac73us), and apply. 
 
 To know more about Affirm, please read the following: 
