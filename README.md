@@ -21,6 +21,9 @@ Check out Quora question [What is it like to work at Affirm](https://www.quora.c
 - If you are **really** interested in Affirm and you find a position that **really** matches your experience, let us talk! Please click this [referral link](https://grnh.se/54db7ac73us), send to affirm.refer.job@gmail.com, with your linkedin profile link, and resume. I will follow up with you. 
 - If you just want to apply through the link, visit this [referral link](https://grnh.se/54db7ac73us), and apply. 
 
+
+Internship 2021 Canada: https://grnh.se/36bc48fd3us
+
 To know more about Affirm, please read the following: 
 
 - [1] Affirm Tech Blog. [https://tech.affirm.com/](https://tech.affirm.com/)
